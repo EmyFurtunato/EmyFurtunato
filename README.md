@@ -1,8 +1,8 @@
 ## Olá, sou Emilly!!!
 
-- 🎓 Cursando NEM e DS
+- 🎓 Cursando NEM e DS no SESI PAULISTA
 - ❤ Sou apaixonada por livros e poesia.
-- 📞 Contato: (81) 99112-2562
+- 📞 Contato: (81) 98762-8092
 
  
 ### 🏆 Tecnologias
